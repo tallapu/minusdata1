@@ -1,2 +1,2 @@
 # minusdata1
-thwv  paoihs,jwy. ktdktfd`kftdjfd tt2
+the minus data is an degree of data
